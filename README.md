@@ -1,0 +1,5 @@
+- 👋 Hello there, I’m @miguel554422
+- Salve rapeize// 
+- Vou começar a postar uns codigos perdidos aqui//  
+- Não esperem o melhor mas alguma coisa vai sair daqui// 
+- Espero poder ajudar quem precisar e ser ajudado por quem puder me ajudar ksksks// 
